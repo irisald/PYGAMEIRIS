@@ -1,3 +1,7 @@
+<img width="1257" height="783" alt="vvvvvv" src="https://github.com/user-attachments/assets/c3fb49cc-1ec3-4e44-9c88-97c7ab6e08ff" />
+<img width="1219" height="804" alt="vvv" src="https://github.com/user-attachments/assets/98b52e7e-759c-4536-9af5-86926246b486" />
+<img width="1213" height="809" alt="adadada" src="https://github.com/user-attachments/assets/f20389ff-72ef-46c6-9497-6fc09fab6362" />
+<img width="1242" height="773" alt="dadadadad" src="https://github.com/user-attachments/assets/c46ad0a1-94dd-4441-9ae1-2074eaa7662b" />
 
 Estudiante:** Iris Guadalupe
 
