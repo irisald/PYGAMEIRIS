@@ -3,7 +3,7 @@
 <img width="1213" height="809" alt="adadada" src="https://github.com/user-attachments/assets/f20389ff-72ef-46c6-9497-6fc09fab6362" />
 <img width="1242" height="773" alt="dadadadad" src="https://github.com/user-attachments/assets/c46ad0a1-94dd-4441-9ae1-2074eaa7662b" />
 
-Estudiante:** Iris Guadalupe
+Estudiante:** Iris Guadalupe Guillen Vazquez **
 
 ## Descripción del proyecto
 
